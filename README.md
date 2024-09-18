@@ -1,2 +1,2 @@
 ## TIL
-Today I Learned. (maybe..🤤) 
+Today I Learned. (sometimes..🤤) 
